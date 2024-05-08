@@ -24,7 +24,7 @@ Ready to explore the simulated world of NFTs? Unfortunately, this website is pur
 ![NFT Marketplace Image](https://s4.aconvert.com/convert/p3r68-cdx67/akr14-l2hau.jpg)
 
 ## 📱 Contact
-This website is purely hypothetical, but if you have any questions or feedback about the concept, feel free to reach out to us at kadiryazadzhi@gmail.com. We appreciate your interest!
+This website is purely hypothetical, but if you have any questions or feedback about the concept, feel free to reach out to me at kadiryazadzhi@gmail.com. We appreciate your interest!
 
 Join the simulated NFT revolution with NFT-World - where every simulated token tells a story. 🚀
 
